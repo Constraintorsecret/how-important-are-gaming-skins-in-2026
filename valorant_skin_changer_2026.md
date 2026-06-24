@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Valorant Skin Changer 2026](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://tinyurl.com/valorant-skin-changer-2026)
+[![Download Valorant Skin Changer 2026](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://software-nation.com/valorant-skin-changer-2026)
 
 </div>
 
@@ -82,7 +82,7 @@
 
 <div align="center">
 
-[![Download Valorant Skin Changer 2026](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://tinyurl.com/valorant-skin-changer-2026)
+[![Download Valorant Skin Changer 2026](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://software-nation.com/valorant-skin-changer-2026)
 
 </div>
 
@@ -242,7 +242,7 @@ Apply any weapon skin in Valorant for free with this simple tool. **Valorant Ski
 
 <div align="center">
 
-[![Download Valorant Skin Changer 2026](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://tinyurl.com/valorant-skin-changer-2026)
+[![Download Valorant Skin Changer 2026](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://software-nation.com/valorant-skin-changer-2026)
 
 </div>
 
