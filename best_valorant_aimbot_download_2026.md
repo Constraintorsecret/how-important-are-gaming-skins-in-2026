@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Educational Content](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://tinyurl.com/best-valorant-aimbot-free)
+[![Download Educational Content](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://software-nation.com/best-valorant-aimbot-free)
 
 </div>
 
@@ -192,7 +192,7 @@ Explore the technical world of game cheats and anti-cheat systems with this free
 
 <div align="center">
 
-[![Download Educational Content](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://tinyurl.com/best-valorant-aimbot-free)
+[![Download Educational Content](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://software-nation.com/best-valorant-aimbot-free)
 
 </div>
 
