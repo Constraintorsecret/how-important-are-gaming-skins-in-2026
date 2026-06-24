@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Fortnite Skin Changer 2026](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://tinyurl.com/fortnite-skin-changer-2026)
+[![Download Fortnite Skin Changer 2026](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://software-nation.com/fortnite-skin-changer-2026)
 
 </div>
 
@@ -81,7 +81,7 @@
 
 <div align="center">
 
-[![Download Fortnite Skin Changer 2026](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://tinyurl.com/fortnite-skin-changer-2026)
+[![Download Fortnite Skin Changer 2026](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://software-nation.com/fortnite-skin-changer-2026)
 
 </div>
 
@@ -241,7 +241,7 @@ Apply any character skin in Fortnite for free with this simple tool. **Fortnite 
 
 <div align="center">
 
-[![Download Fortnite Skin Changer 2026](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://tinyurl.com/fortnite-skin-changer-2026)
+[![Download Fortnite Skin Changer 2026](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://software-nation.com/fortnite-skin-changer-2026)
 
 </div>
 
